@@ -9,11 +9,14 @@ Features
 
     Easy Whitelisting system
     24/7 Service
-    
+    Undetectible Scripts
+    Good Staff
+    Good Developers
+    Strong Development Team
+    Weekly Updates
+    Tons of Games
 
-
-
-
+######
 
 
 ## [Discord Server](https://discord.gg/gvaCFaYTsT)
